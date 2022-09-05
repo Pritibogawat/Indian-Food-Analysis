@@ -9,5 +9,4 @@ Analyzed and visualized the vegetarian &amp; non vegetatrian Indian food dishes 
 
 ![WhatsApp Image 2022-09-05 at 2 07 20 PM](https://user-images.githubusercontent.com/89146782/188436532-15a8b5c7-0922-4f5b-9485-7cd2a16cec6b.jpeg)
 
-![WhatsApp Image 2022-09-05 at 2 06 00 PM](https://user-images.githubusercontent.com/89146782/188436533-267f940c-7123-4633-aa7b-68c674e4f9ff.jpeg)
 
